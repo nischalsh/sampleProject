@@ -1,1 +1,1 @@
-nischal
+nssi
